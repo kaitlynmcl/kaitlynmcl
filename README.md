@@ -1,4 +1,4 @@
-## Hi, I'm Kaitlyn 🥀
+## Hi, I'm Kaitlyn 🩵🌷🌻🌩️
 
 
 - ⚡ I'm a software engineer with six years of experience working in agile, start-up environments. 
